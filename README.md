@@ -4,4 +4,4 @@ Elise Herzfeld
 - stay on top of course work
 - be comfortable asking for help
 <br>
-My favorite fall snack is apple crisp
+My favorite fall snack is pie
